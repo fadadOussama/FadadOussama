@@ -1,4 +1,4 @@
-# Fadad Oussama 👨‍💻
+# Fadad Oussama 👨🏻‍💻
 
 
 **`Frontend Developer`**
